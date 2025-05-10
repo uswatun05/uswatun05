@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hellow All i'am uswatun hasanah👋
 
 <!--
 **uswatun05/uswatun05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+![alt text](<WhatsApp Image 2025-01-19 at 21.57.33.jpeg>)
+
+***My Sosmed✍***
+- *Ig : Uswatun516*
+- *Fb : Uswatun hasanah*
